@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @idealretrovillean a.k.a RandomBOI
+- 👀 I’m interested in stuff.
+- 🌱 I’m currently busy.
+- 💞️ Already collaborating.
+- 📫 How to reach me: discord randomboi#3226.
